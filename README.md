@@ -1,1 +1,1 @@
-# MightyDogs
+# Migthy Ducks Hockey League
